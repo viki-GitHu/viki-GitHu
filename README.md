@@ -1,0 +1,5 @@
+- 👋 Bonjour, je m'appelle viki
+- 👀 je jour a roa roblox
+- 🌱 ajouter moi sur discord c'est viki_vset
+- 💞️ j'adore la vie hehe
+- 📫 je cherche des amies
